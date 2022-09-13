@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Андрюша
 - 👀 I’m interested in нечего
-- 🌱 I’m currently learning Нігерську
+- 👤 I’m currently learning Нігерську
 - 💞️ I’m looking to collaborate on Саша Нагорщук
 - 📫 How to reach me https://vk.com/korotkoename228
 
